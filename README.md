@@ -1,2 +1,0 @@
-# jmunozg.github.io
-Website
